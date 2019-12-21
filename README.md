@@ -10,10 +10,15 @@ The files uploaded here to GitHub are of my book, "The Future's Toolkit," on how
 
 I want to go out and entertain, but first, I had to prove these tools WORK!
 ============ Forwarded message ============
+
 From: dibrager1 <dibrager1@zoho.com>
+
 To: "greekboston"<greekboston@worldwidegreeks.com>, "info"<info@bostonlykeion.org>, "harvardcollegehellenicsociety"<harvardcollegehellenicsociety@gmail.com>, "HellenicCulturalSociety"<HellenicCulturalSociety@gmail.com>, "info"<info@hmsny.org>, "angelo"<angelo@wzra48.com>, "info"<info@hellenicheartbeat.com>
+
 Date: Thu, 19 Dec 2019 18:23:37 -0800
+
 Subject: Twelve years ago today, 19 December 2007, I sent fax to DC Embassy of Greece to ask to judge this man AGAIN. I'm a Jewish GEEK who found a PUZZLE in the Gospels while STONED OUT OF MY MIND!
+
 ============ Forwarded message ============
 
 19 December 2019
