@@ -21,7 +21,9 @@ Help yourself to the book if you want to build and sell copies.  This world need
 I want to go out and entertain, but first, I had to prove these tools WORK!  We were doing hypnosis Dungeons&Dragons. Players with eyes WIDE OPEN or closed both SWORE they battled real monsters in real time.  As long as reality is safe, when you instinctively shout, "I CAN'T BELIEVE THIS IS HAPPENING!" this shout turns out the graphics of the subconscious mind and returns one here to DEFAULT MODE on Earth as Earth is in Heaven...something went wrong. Torah's a system scram with only the wrong answers so, when REJECTED, it paints all the right answers deep in your mind in a MIRROR IMAGE so you never have to carry anything.  This is a WOTW level of security.
 
 David Brager
+
 21 December 2019
+
 ============ Forwarded message ============
 
 From: dibrager1 <dibrager1@zoho.com>
