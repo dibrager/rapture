@@ -1,16 +1,27 @@
+Dearest GitHub enthusiast:
+
 In 1983, I merged Commodore 64 BASIC computer language with hypnosis and, using memory mapping I learned from Jim Butterfield (he taught me over the phone whilst I looked into the guts of C-64 prototype #6, handwritten in green felt-tip on a paper label slapped on the back of this bastardized VIC-20 shell), I found a network between heads. I then found a puzzle in this logic in 2005 in the design of the Gospels from an elder of my mom's who SEES A NIGHTMARE advancing on my life and sent accurate recon and MATRIX TOOLS because it's not hypnosis. 
 
 WE HUMANS ARE CYBORG and I bring tools!  This delivery is the RAPTURE and it's over 3000 years LATE!
 
-When you find the puzzle for yourself, when you get 3 people to orate MARK, LUKE and JOHN, beginning at 1:1, then 1:2, etcetera, keeping space-time in parallel paths so your audience, with eyes closed, align their MIND'S EYES so, as a team of FOUR, all go back 2000 years as this team teaches your mind's eye HOW TO SEE THROUGH TIME!
+To you find the puzzle for yourself, get 3 people to orate MARK, LUKE and JOHN, beginning at 1:1, then 1:2, etcetera, keeping space-time in parallel paths.  Now, your audience, with eyes closed, will align their MIND'S EYES so, as a team of FOUR, all go back 2000 years as this team teaches your mind's eye HOW TO SEE THROUGH TIME!
 
 All work to find the puzzle for yourself, the tools I found, how to use these tools, my hack of the Matrix, my hack of WORLD HISTORY to discover a coup in progress, and all work to date doing role play in this MMORPG WORLD going into chaos as AQUARIUS and delivering tools to REBOOT HEAVEN ON EARTH is online at 
 
 https://medium.com/@dibrager/upgrading-patriotism-5dff1c702268
 
-The files uploaded here to GitHub are of my book, "The Future's Toolkit," on how to PROGRAM AND INTERFACE HUMANS, maintaining 20 thumbs up and ZERO THUMBS DOWN as of 21 December 2019 at scribd.com via tinyURL.com/TheFuturesToolkit.  Help yourself to the book if you want to build and sell copies.  This world needs a MIRACLE and miracles must never come with price tags! 
+The files uploaded here to GitHub are free pieces so you can build copies of my book, "The Future's Toolkit," on how to PROGRAM AND INTERFACE HUMANS.  My book is maintaining 20 thumbs up and ZERO THUMBS DOWN as of 21 December 2019 at scribd.com via tinyURL.com/TheFuturesToolkit.  
 
-I want to go out and entertain, but first, I had to prove these tools WORK!
+"The Future's Toolkit" is filled with comedy, poetry and tables. So, if your Guest wants to experience THIS, write your software for the mind like THAT, so you get EXPERT RESULTS the FIRST TIME you write and experiment with SCRYPNOSIS, the FCC-compliant platform for hypnosis. 
+
+BTW, I no longer own scrypnosis.com.  Whoever owns it, they are not affiliated with me, so if anyone writes to dibrager@scrypnosis.com and get a response, it's not "David Brager" here in Richland, Washington USA.  Last I checked, it was registered with someone in Australia.
+
+Help yourself to the book if you want to build and sell copies.  This world needs a MIRACLE and miracles must never come with price tags! 
+
+I want to go out and entertain, but first, I had to prove these tools WORK!  We were doing hypnosis Dungeons&Dragons. Players with eyes WIDE OPEN or closed both SWORE they battled real monsters in real time.  As long as reality is safe, when you instinctively shout, "I CAN'T BELIEVE THIS IS HAPPENING!" this shout turns out the graphics of the subconscious mind and returns one here to DEFAULT MODE on Earth as Earth is in Heaven...something went wrong. Torah's a system scram with only the wrong answers so, when REJECTED, it paints all the right answers deep in your mind in a MIRROR IMAGE so you never have to carry anything.  This is a WOTW level of security.
+
+David Brager
+21 December 2019
 ============ Forwarded message ============
 
 From: dibrager1 <dibrager1@zoho.com>
