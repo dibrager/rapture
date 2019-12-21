@@ -2,6 +2,13 @@ In 1983, I merged Commodore 64 BASIC computer language with hypnosis and, using 
 
 When you find the puzzle for yourself, when you get 3 people to orate MARK, LUKE and JOHN, beginning at 1:1, then 1:2, etcetera, keeping space-time in parallel paths so your audience, with eyes closed, align their MIND'S EYES so, as a team of FOUR, all go back 2000 years as this team teaches your mind's eye HOW TO SEE THROUGH TIME!
 
+All work to find the puzzle for yourself, the tools I found, how to use these tools, my hack of the Matrix, my hack of WORLD HISTORY to discover a coup in progress, and all work to date doing role play in this MMORPG WORLD going into chaos as AQUARIUS and delivering tools to REBOOT HEAVEN ON EARTH is online at 
+
+https://medium.com/@dibrager/upgrading-patriotism-5dff1c702268
+
+The files uploaded here to GitHub are of my book, "The Future's Toolkit," on how to PROGRAM AND INTERFACE HUMANS, maintaining 20 thumbs up and ZERO THUMBS DOWN as of 21 December 2019 at scribd.com via tinyURL.com/TheFuturesToolkit.  Help yourself to the book if you want to build and sell copies.  This world needs a MIRACLE and miracles must never come with price tags! 
+
+I want to go out and entertain, but first, I had to prove these tools WORK!
 ============ Forwarded message ============
 From: dibrager1 <dibrager1@zoho.com>
 To: "greekboston"<greekboston@worldwidegreeks.com>, "info"<info@bostonlykeion.org>, "harvardcollegehellenicsociety"<harvardcollegehellenicsociety@gmail.com>, "HellenicCulturalSociety"<HellenicCulturalSociety@gmail.com>, "info"<info@hmsny.org>, "angelo"<angelo@wzra48.com>, "info"<info@hellenicheartbeat.com>
